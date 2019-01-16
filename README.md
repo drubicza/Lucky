@@ -6,7 +6,9 @@ Bahan : SSL Capture ( buat yg paham )
 
 buka apk Lucky Dog pilih MONEY -> EXCHANGE MALL -> SUPER LUCKY WHEEL
 
-kemudian TRY YOUR LUCK! -> tunggu putar spin nya -> kemudian pilih WATCH VIDEO
+kemudian TRY YOUR LUCK! -> tunggu putar spin nya harus dapat klo dapat Mystery gift spin lagi > kemudian pilih WATCH VIDEO 
+
+tunggu iklan kemudan klo sudah kelar skip iklam cek hasil Capture tadi
 
 Cek hasil Capture tadi cari http://point.shortvideo3.top/v1/users/points
 
